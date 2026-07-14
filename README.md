@@ -1,1 +1,0 @@
-# Takam-Mising-Sisang-Kebang
